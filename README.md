@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Subedvan
+- 👋 Hi, I’m @Subadvan
 - 👀 I’m interested in cyber world
 - 🌱 I’m never Stop learning
 - 📫 How to reach me Instagram account @mr_cjx_
